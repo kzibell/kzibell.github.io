@@ -11,3 +11,7 @@ The first albums were released under the band name Taste. At 1970 the band name 
 * Tattoo
 * Irish Tour '74
 * Fresh Evidence
+
+From his song Brute Force and Ignorance:
+> Brute Force And Ignorance have just hit town
+> Looking like survivors from the lost and found
